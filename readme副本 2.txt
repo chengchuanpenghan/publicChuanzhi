@@ -1,3 +1,2 @@
 大家努力工作努力挣钱努力娶媳妇儿
 搬到小强家隔壁
-asdfasdfasdfasdfasdf
